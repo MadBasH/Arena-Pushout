@@ -1,0 +1,1 @@
+Sag alt kisimdaki releases kismindan indirebilirsiniz.
